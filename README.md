@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Uju-halo
+- 👋 Hi, I’m Uju
 - 👀 I’m interested in ... Cybersecurity
 - 🌱 I’m currently learning ... Cybersecurity
 - 💞️ I’m looking to collaborate on ... Anyone in cybersecurity
